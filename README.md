@@ -1,4 +1,4 @@
-
+Maxime Rannou - Jeanne Roubin - Antoine Roussez
 
 Le Bagad Kemper est un bagad de la ville de Quimper dans le Finistère
 L'ensemble comporte aussi un groupe secondaire, le Bagad Glazik Kemper, ainsi qu'un bagad école, le Bagadig Kemper.
